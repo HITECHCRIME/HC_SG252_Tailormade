@@ -46,9 +46,11 @@ is already out and bare
 
 what i want is your patience
 
-i had nothing on the plot
-in 
+you got nothing on the plot that's tough
+doing motions on concotions mixed with rot
+self is gone, 
 
+your own enemy - vanished into clouds 
 
 
 ```
