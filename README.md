@@ -29,7 +29,7 @@ i got nothing in my soul
 breaking habits for a cause
 keep on tricking, still alone
 
-fall is near i can tell
+fall is near i can tell (say)
 what you truly wanted gone
 is already out and bare
 i won't stand for stagnation
@@ -39,7 +39,7 @@ i got nothing in my soul
 breaking habits for a cause
 keep on tricking, still alone
 
-fall is near i can tell
+fall is near i can tell (say)
 what you truly wanted gone
 is already out and bare
 what i want is your patience
